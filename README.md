@@ -1,6 +1,7 @@
           ♡♱ sweetest streamer on the internet ｡ﾟ ୨୧⠀
 
-                  ![IMG_7343](https://github.com/user-attachments/assets/beb2eae7-57d5-4be9-aaa2-f498a527c8e1)
+                  ![tumblr_465097f001a899eab4c40875a1b2bed5_77282d4e_250](https://github.com/user-attachments/assets/84e3e7c7-a23b-49e3-8838-857498137409)
+
  enfp; sixteen. 666 ༄‧₊
 socials      ᡣ𐭩       ![sjb3jp](https://github.com/user-attachments/assets/b4287a28-e368-4f8b-bacd-1740faeaa165)
 
